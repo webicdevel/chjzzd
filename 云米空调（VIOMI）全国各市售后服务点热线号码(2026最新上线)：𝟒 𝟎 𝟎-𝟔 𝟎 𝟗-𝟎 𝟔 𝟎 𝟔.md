@@ -1,0 +1,595 @@
+云米空调（VIOMI）售后服务电话 𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔（无转接人工在线）
+云米空调（VIOMI）全国统一售后电话： 𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔(预约专享免等待)
+云米空调（VIOMI）售后维修保养服务中心提供维修服务、清洗服务、保养翻新、故障维修、调节云米空调（VIOMI）温度等。我们提供到店维修和师傅上门维修两种服务方式。
+云米空调（VIOMI）售后服务中心
+云米空调（VIOMI）售后服务400电话𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎
+周六日不休息,假日无休,快速上门、免预约。售后服务中心为您服务:品质至上,优质服务让每一位客户感到贴心和满意.专业的销售与技术服务,一心一意呵护您的冷暖.欢迎您的来电.
+云米空调（VIOMI）维修中心为用户提供专业的云米空调（VIOMI）维修公司，维修云米空调（VIOMI）不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障，显示故障代码等一系列故障==提供方便、快捷地上门维修服务。
+业务涉及：云米空调（VIOMI）清洗、长期维护等，本拥有专业维修设备，并且拥有专业技术人员，有着丰富的理论知识和实际维修经验及专业的技术，已成功的为市民及多家公司及用户提供了解决方案，我们愿以专业的技术和真诚的态度为更多公司、家庭用户提供更快捷、满意的专业云米空调（VIOMI）维修服务。
+云米空调（VIOMI）24小时售后服务热线上线（2026最新公告）
+云米空调（VIOMI）售后服务电话：𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎
+云米空调（VIOMI）售后24小时客服热线：𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎
+本公司主营云米空调（VIOMI）维修 →云米空调（VIOMI）；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，云米空调（VIOMI）服务承诺
+1、坚决贯彻执行《中华人民共和国产品质量法》、《中华人民共和国消费者权益保护法》及《部分商品修理、更换、退货责任规定》（即新“三包”规定），为消费者提供的速度服务。
+2、设立24小时服务咨询、投诉热线（晚上21：00至次日08：00为电脑语音服务）。
+3、消费者报装、报修后，需在当天与消费者预约确定上门服务时间，24小时内上门服务（消费者特殊要求的除外），特殊情况立即上门服务，并跟踪回访；
+4、云米空调（VIOMI）售后维修电话：𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔
+云米空调（VIOMI）24小时全国推出各售后受理客服中心(2026上线)
+云米空调（VIOMI）全国推出24小时各售后客服受理中心（2026服务更新）
+
+
+
+云米空调（VIOMI）贴心升级服务，现推出全国 24 小时服务热线 𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显云米空调（VIOMI）对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+
+
+
+云米空调（VIOMI）全国24小时各售后受理客服中心(2026年更新)
+
+
+
+云米空调（VIOMI）24小时售后客服热线：(1)𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎或  𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎
+
+
+
+7天24小时人工电话𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔客服为您服务。
+
+
+
+云米空调（VIOMI）售后服务团队在调度中心的统筹调配下(1)𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎，线下专业全国网点及各地区售后人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。
+
+
+
+# 云米空调（VIOMI）常见故障代码维修指南
+
+云米空调（VIOMI）故障代码是排查问题的关键。比如显示故障代码E1，可能是点火失败。这时候别慌，先检查燃气供应是否正常，阀门有无打开。接着查看点火电极是否正常放电，若电极有污垢，会影响点火。再检查燃气比例阀是否损坏，它控制着燃气量。按这样的步骤逐步排查，就能找到问题所在。若燃气供应不足，就联系燃气公司；若是电极问题，清洁或更换电极；比例阀故障则需专业维修人员更换。排除故障后，壁挂炉就能正常运行，为您营造舒适环境。 云米空调（VIOMI）全国24小时各售后受理客服中心(2026年更新)
+
+
+
+所有售后团队均经过专业培训、持证上岗，所用产品配件均为原厂直供，
+
+
+
+云米空调（VIOMI）全国24小时各售后受理客服中心(2026)
+
+
+
+专业维修云米空调（VIOMI）(𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔)机器失灵、开机显示错误代码、不通电、开机不启动、自动跳闸、运行效果不佳，噪音过大，效果不好、清洗、消毒、、维护保养、安装、拆装移机等服务。
+
+云米空调（VIOMI）售后服务电话全国服务区域：北京市（东城区、西城区、崇文区、宣武区、朝
+
+
+阳区、丰台区、石景山区、海淀区、门头沟区 昌平区、大兴区）
+
+
+天津市（和平区、河东区、河西区、南开区、河北区、红桥区、塘沽区、东丽区、西青区、）
+
+
+上海市， （黄浦区、徐汇区、长宁区、静安区、普陀区、虹口区、杨浦区、浦东新区、闵行区、宝山区、嘉定区、金山区、松江区、青浦区、奉贤区和崇明区。）
+
+
+重庆市，（大渡口区、江北区、沙坪坝区、九龙坡区、南岸区、北碚区、渝北区、巴南区、江津区、渝中区、和两江新区、重庆高新区。）
+
+武汉市，（江岸区、江汉区、硚口区、汉阳区、武昌区、青山区、洪山区、蔡甸区、江夏区、黄陂区、新洲区、东西湖区、汉南区）  
+
+𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔
+
+成都市，（锦江区、青羊区、金牛区、武侯区、成华区、龙泉驿区、青白江区、新都区、温江区、双流区、郫都区、新津区）
+
+
+南京市，（玄武区、秦淮区、建邺区、鼓楼区、浦口区、栖霞区、雨花台区、江宁区、区、溧水区、高淳区。）
+
+
+杭州市，（滨江区、萧山区、余杭区、临安区、富阳区、上城区、下城区、西湖区。）
+
+
+无锡市，（锡山区、惠山区、滨湖区、梁溪区、新吴区；江阴市、宜兴市。）
+
+
+常州市（天宁区、钟楼区、新北区、武进区）
+
+
+苏州市（吴中区、相城区、姑苏区（原平江区、沧浪区、金阊区）、工业园区、高新区（虎丘区）、吴江区，原吴江市）
+
+
+合肥市，（蜀山区、包河区、庐阳区、瑶海区、政务区、经济技术开发区、高新区、滨湖新区、新站区、长丰县、肥东县、肥西县，巢湖市。）
+
+全国推出24小时各售后客服受理中心（2026服务更新）
+AI Builders Digest 今日热点快报<br>2026年06月24日07时52分43秒(UTC+8)##
+wefhsdhcvWESDCSDwefsdf.cn
+云米空调（VIOMI）贴心升级服务，现推出全国 24 小时服务热线 𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显云米空调（VIOMI）对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+直播源相关资源汇总 (省近 fnf 行)
+现在各个宽带运营商都有 IPTV 业务，不用安装有线电视就可以高清无卡顿的看电视
+没有开通 iptv 可以使用抓取的直播源地址，复制到电脑、手机、电视网络盒子等设备上看，如果动手能力强也可以自己抓包获取直播源
+由于版权原因很多电视直播软件播放时会卡顿、画面不清晰
+江苏南京电信 IPTV 直播源下载地址： https://github.com/steveabold/mxmmbh/commit/dd62fcaa68ac35cc6c96c593422454c546f40f02
+
+江苏电信 IPTV 直播源下载地址： https://github.com/yiille/opkcip/commit/c2b9c427a3ca50989e40e74498e2384603012e5f
+
+江苏 IPTV 直播源： https://github.com/steveabold/mxmmbh/commit/37513e22f775e153a09af4c4567fc7cb2d7424f0
+
+安徽广电 IPTV 直播源下载地址： https://github.com/yiille/opkcip/commit/0863b527b73c2d42cd450ed73f1dcddaf91327c9
+
+海南电信组播 IPTV 直播源下载地址： https://github.com/steveabold/mxmmbh/commit/56bd77189a105a84f52ac949e4faed861e6ba926
+
+海南联通组播 IPTV 直播源下载地址： https://github.com/yiille/opkcip/commit/702eb88f13700dff959c135b952d60fca35cd690
+
+湖北 IPTV 直播源： https://github.com/steveabold/mxmmbh/commit/ed676c76ac4206297fc588349c1382f6fe98c6c3
+
+湖南电信组播直播源下载地址： https://github.com/yiille/opkcip/commit/887bbf20d0d7b2eda5ec72e836637c8131e41f0b
+
+湖南电信 IPTV 直播源下载地址： https://github.com/steveabold/mxmmbh/commit/70679a61356444d69145c2f462246a76e7003cf1
+
+湖南联通组播 IPTV 直播源下载地址： https://github.com/yiille/opkcip/commit/8c65bfc4c4d69f01ea4544675b12047151858fa1
+
+湖南联通 IPTV 直播源下载地址： https://github.com/steveabold/mxmmbh/commit/7ebbd8750ed62bb44a5f98b7913eeee99e249ae5
+
+湖南移动 IPTV 直播源下载地址： https://github.com/yiille/opkcip/commit/c67b92f70d7aecac53bf0a074fe01dd35f12ed28
+
+湖南 IPTV 直播源： https://github.com/steveabold/mxmmbh/commit/af48a1df8b4e1fbcd5e73a7fa2a3d7b9658d5913
+
+重庆移动组播直播源下载地址： https://github.com/yiille/opkcip/commit/27f24b8e2bd05e015b2ae9ebaa88efc8e2b372e1
+
+重庆联通组播直播源下载地址： https://github.com/steveabold/mxmmbh/commit/7cf25a7aae4de58246e9663560b016aaabd91dae
+
+重庆联通直播源下载地址： https://github.com/yiille/opkcip/commit/1f775dd883ae2c69414c4c57e704d59bed73cce8
+
+重庆电信组播直播源下载地址： https://github.com/steveabold/mxmmbh/commit/a8e319496b39b164fcb2760503a4e5e7ffae9ca2
+
+重庆电信直播源下载地址： https://github.com/yiille/opkcip/commit/425bfb29565ebf04b8eb86bb6a494c8217ae9f4a
+
+重庆 IPTV 直播源： https://github.com/steveabold/mxmmbh/commit/4d6543d482ad1c861a458b13e5c7a8d4b00badc0
+
+四川移动组播 IPTV 直播源下载地址： https://github.com/yiille/opkcip/commit/a2f5a4ef3201220fa2c3d8d7e1b8addbf8b9f1c0
+
+四川电信 IPTV 直播源下载地址： https://github.com/steveabold/mxmmbh/commit/da4d1fa5b3d258a9d98075687b0e723244e6b3df
+
+四川电信 IPTV 组播直播源下载地址： https://github.com/yiille/opkcip/commit/218a7e7caf451fba009410b264f16997272242f5
+
+四川广电 IPTV 直播源下载地址： https://github.com/steveabold/mxmmbh/commit/536117e6a9c8c0994fa8a1ea58ff9169e1a70688
+
+四川联通组播 IPTV 直播源下载地址： https://github.com/yiille/opkcip/commit/c2331ff5f39071ff12a93e8dd1c56046ba5b2caa
+
+四川联通 IPTV 直播源下载地址： https://github.com/steveabold/mxmmbh/commit/b4b8ff2709ec0029dd2cda697ac80e9f4df7970e
+
+四川 IPTV 直播源： https://github.com/yiille/opkcip/commit/a2be7963a3fd5934e5f352513f6203354c9b67eb
+
+云南电信组播 IPTV 直播源下载地址： https://github.com/steveabold/mxmmbh/commit/fce3ec6539ab4d71e8627eab8f456fdfd29caf40
+
+云南移动 IPTV 直播源下载地址： https://github.com/yiille/opkcip/commit/b916a0f6c41421e24708bd3da7bf055234a7f8b8
+
+云南 IPTV 直播源： https://github.com/steveabold/mxmmbh/commit/46455b1a977f2fbd74969ad3dd68e36283d37312
+
+贵州电信组播 IPTV 直播源下载地址： https://github.com/yiille/opkcip/commit/dc1bc7a03e61fd410a9eb3c99eba3ebe62fc7e0a
+
+贵州移动 IPTV 直播源： https://github.com/steveabold/mxmmbh/commit/07084a64218915b1d3f0a55b004f778e28a63eea
+
+贵州联通组播 IPTV 直播源下载地址： https://github.com/yiille/opkcip/commit/70b117b57e31d4fa6c3f126862b6a14a71641d95
+
+贵州联通 IPTV 直播源下载地址： https://github.com/steveabold/mxmmbh/commit/80fe0f0eb8fa075ad13fd9a0a0714cc21afbd452
+
+贵州 IPTV 直播源： https://github.com/yiille/opkcip/commit/2386439ba2f0ff7e56d3cf73991430de10025749
+
+福建联通组播 IPTV 直播源下载地址： https://github.com/steveabold/mxmmbh/commit/43f3928c8cbc0222d930ab3d9157a7bf86947f42
+
+福建联通 IPTV 直播源下载地址： https://github.com/yiille/opkcip/commit/900051bf7f99a668b1adfc2e1ca2c21bb348d1f7
+
+福建移动 IPTV 直播源下载地址： https://github.com/steveabold/mxmmbh/commit/4d4aa867d474770a07625af35890282ef7bd7f89
+
+福建电信组播 IPTV 直播源下载地址： https://github.com/steveabold/mxmmbh/commit/6f9be6b8fe7e6d9ff440aad973f179f29bea1125
+
+福建电信 IPTV 直播源下载地址： https://github.com/steveabold/mxmmbh/commit/eb818ac54c2f113e848065a3b78f3dfdc6dcc36d
+
+福建 IPTV 直播源： https://github.com/yiille/opkcip/commit/b8a9e4a7807083acb22cd87c242bd5c472be0e64
+
+安徽移动 IPTV 直播源下载地址： https://github.com/steveabold/mxmmbh/commit/39bbdbc25e3659e523db80ed38501da7cbb7a761
+
+安徽电信 IPTV 组播直播源下载地址： https://github.com/yiille/opkcip/commit/cc8a3714e23b8655c703f848aa67173883de91b5
+
+安徽电信 IPTV 直播源下载地址： https://github.com/steveabold/mxmmbh/commit/4bc2ee67842c5bf3a71b1c339c4c9ec2b09e9f81
+
+安徽联通 IPTV 直播源下载地址： https://github.com/yiille/opkcip/commit/4e4c27304ca42acb3840ad3abae2b201be78c541
+
+安徽 IPTV 直播源： https://github.com/steveabold/mxmmbh/commit/83a18247673a12cb39ccf2371ffb37992ecb1b18
+
+陕西地方台直播源下载地址： https://github.com/yiille/opkcip/commit/91121103a0912b342b0fe4e02bbf6034e3a5ca87
+
+陕西电信组播 IPTV 直播源下载地址： https://github.com/steveabold/mxmmbh/commit/6d7f1f6732f4bcc2f94e1d97022e30afe93e184c
+
+陕西电信 IPTV 直播源下载地址： https://github.com/yiille/opkcip/commit/9bac21a71c8a789bf7cf3068e5b8eaacaeda04e9
+
+陕西移动组播 IPTV 直播源下载地址： https://github.com/steveabold/mxmmbh/commit/c951a16abfacbffc1c2cdc4124a1bbf0ff14a8c3
+
+陕西移动 IPTV 直播源下载地址： https://github.com/yiille/opkcip/commit/475fcb6457006d601a8b563679d3084aa78404b5
+
+陕西 IPTV 直播源： https://github.com/steveabold/mxmmbh/commit/3be50672c918f37fa4336c7a068bc69f6c1b8987
+
+甘肃电信组播 IPTV 直播源下载地址： https://github.com/yiille/opkcip/commit/ee213c0c774b0860763d6fc113b03d121192cbd3
+
+甘肃移动 IPTV 直播源下载地址： https://github.com/steveabold/mxmmbh/commit/daae9c66127438ebc23f25c4f6f6317ecacffe0b
+
+甘肃 IPTV 直播源： https://github.com/yiille/opkcip/commit/66d796de65a534712aa9e7584dc55cb82e812322
+
+山西移动组播 IPTV 直播源下载地址： https://github.com/steveabold/mxmmbh/commit/99f8b703953f03949b6c0e3a1204fac149a9f752
+
+山西联通组播 IPTV 直播源下载地址： https://github.com/yiille/opkcip/commit/c73c993b57b69d443c129db2484226708f7721e1
+
+山西联通 IPTV 直播源下载地址： https://github.com/steveabold/mxmmbh/commit/6e9d1ebf9f95f459d457495a788f3a6aeb26e34b
+
+山西 IPTV 直播源： https://github.com/yiille/opkcip/commit/7432fd49bf35338c41b3ff596656ce8ead1f023c
+
+天津电信组播直播源下载地址： https://github.com/steveabold/mxmmbh/commit/d2957540c51ff12068338267915de544dbfe1e71
+
+天津联通组播直播源下载地址： https://github.com/yiille/opkcip/commit/89f8befee6d4b05ae5f57638dce998d307ef7ea5
+
+天津 IPTV 直播源： https://github.com/steveabold/mxmmbh/commit/557d80ac9eed37a1ede76f84ecc90a27914f02ab
+
+上海移动直播源下载地址： https://github.com/yiille/opkcip/commit/6f474d7f724801cefdc2de38f65d9c8950ae8293
+
+上海联通组播直播源下载地址： https://github.com/steveabold/mxmmbh/commit/d84dd006445f9a330e02e1df8fb4e33cf20d9c89
+
+上海联通直播源下载地址： https://github.com/yiille/opkcip/commit/f6f3c8a8341c22b0d6c862955837e2469861638a
+
+上海电信组播直播源下载地址： https://github.com/steveabold/mxmmbh/commit/badb16f3ce570ca1a96271e4f4aeda4c85ef3ac1
+
+上海电信直播源下载地址： https://github.com/yiille/opkcip/commit/dc4af78c5f22cfd6c7b6e19046c9f9645aeb7d87
+
+上海 IPTV 直播源： https://github.com/steveabold/mxmmbh/commit/80a5259229fc1ec6d4303ab0706f304e98585e65
+
+北京移动 IPTV 直播源下载地址： https://github.com/yiille/opkcip/commit/788d407105e491420aa103cd695193f41bde4f12
+
+北京移动组播直播源下载地址： https://github.com/steveabold/mxmmbh/commit/0b0240d980a6c362d3e86a048e1ed8f510aa4713
+
+北京电信组播 IPTV 直播源下载地址： https://github.com/yiille/opkcip/commit/0257dc8ef671f5e665c695cdd22c4127da5cce3f
+
+北京联通组播 IPTV 直播源下载地址： https://github.com/steveabold/mxmmbh/commit/d5f37d0efa5c0d0cf4769b39f095892c31fea7dc
+
+北京联通 IPTV 直播源下载地址： https://github.com/yiille/opkcip/commit/dad144c2722c25c41a1ecd5a0c77b5f98748fd4e
+
+北京 IPTV 直播源： https://github.com/steveabold/mxmmbh/commit/0ac72eea7db76376050ca681f1b9ced59aba8817
+
+部分地区的移动可全网通用： https://github.com/yiille/opkcip/commit/a8171bd668aa13d86a5e9deaf659f687b88c2cb6
+
+各地运营商 IPTV 直播源，速度稳定画质好，选择你所在地宽带运营商： https://github.com/steveabold/mxmmbh/commit/5df48ef1564feb9e22460b2a24b6181bcfdcb4a8
+
+广播电台下载地址： https://github.com/yiille/opkcip/commit/d75574f930c94c00ef354e33da63d948e5ab71f4
+
+国内景区直播源下载地址： https://github.com/steveabold/mxmmbh/commit/436bc7321cfa21caa12e3ddb3b97a690f1208c47
+
+轮播华数黑莓下载地址： https://github.com/yiille/opkcip/commit/91a178269b9a9aa90c66b324e7dc71c71d5c3a9e
+
+台湾香港澳门电视台直播源下载地址： https://github.com/steveabold/mxmmbh/commit/9265f3b0515680c79dc1781917ad363f0574ae35
+
+韩国、日本、美国、加拿大、英国、意大利、德国、法国、西班牙、南美、俄罗斯、中东等： https://github.com/yiille/opkcip/commit/7fa5bbffe6cc2581fb037a9be482cd0fd1651527
+
+国外电视台直播源下载地址： https://github.com/steveabold/mxmmbh/commit/817b4307f21a983604fda4c4c4315cfbc722e0bf
+
+卫视地方台安徽农大下载地址： https://github.com/yiille/opkcip/commit/87260a73ad4bf46800b6e117d78c7928e7828cec
+
+卫视北京凤凰探索星空卫视北京邮电大学校园网下载地址： https://github.com/steveabold/mxmmbh/commit/b3e13df4c777879a7167801f330fa4c1e808abd9
+
+卫视上海源下载地址： https://github.com/yiille/opkcip/commit/d471afe9abb541488ac985051440b515e8fed57f
+
+卫视重庆广电 下载地址： https://github.com/steveabold/mxmmbh/commit/f5f7dc85137f2e37d1d348217987bd65d19f8d43
+
+卫视百视 TV 下载地址： https://github.com/yiille/opkcip/commit/be825fdae2ca037eae48e18c54f656329142d49b
+
+移动 IPv6 直播源下载地址： https://github.com/steveabold/mxmmbh/commit/cf9092c41e8ac0ee6648f35aa4843968a2eaf4dd
+
+国内电视台 IPv6 直播源下载地址： https://github.com/yiille/opkcip/commit/42b38b52673bc7cad79754195383b158ecd80799
+
+各大卫视、上千个地方台： https://github.com/steveabold/mxmmbh/commit/52e58c1f7d406ab8408aa3d8faa4e1c9557567a4
+
+国内电视台直播源下载地址： https://github.com/yiille/opkcip/commit/f3fc9b5a17c59435fd98ad19f2c9240dbc9f65d0
+
+全国可用直播源： https://github.com/steveabold/mxmmbh/commit/ad9777b959a44c3bedf08929653f346d5c503097
+
+包括完整内容所有已知频道： https://github.com/yiille/opkcip/commit/1e04f55690d5a3f4835eda4fa7d2f78308b06f00
+
+除成人内容以外的已知频道： https://github.com/steveabold/mxmmbh/commit/1d1d9af87e3a86a622a06d197a9a17e1e80824be
+
+收集来自世界各地公开可用的 IPTV： https://github.com/yiille/opkcip/commit/7ce096935425ef2431e572a488cb05f432540316
+
+稳定地址： https://github.com/steveabold/mxmmbh/commit/d4dbc4303c52ed8f0892d41ea1b6ca5cc8ce8ccd
+
+2026-06-24 更新 CCTV 等世界杯相关 HD 播放源： https://github.com/yiille/opkcip/commit/4e1bc421f60a6c351c24cd5b3c694d99c6c78dc3
+
+2026-06-24 更新 IPTV 工具： https://github.com/steveabold/mxmmbh/commit/6e88171e13258f3ffb5042bf1a74f57059cdf54c
+
+2026-06-24 更新世界各地 IPTV 频道： https://github.com/yiille/opkcip/commit/2788567eae04977a686097ce80074c00e6dbe223
+
+2026-06-24 更新全国可用直播源： https://github.com/steveabold/mxmmbh/commit/ec7ba5876203dc78a37604456a6648fd207560a7
+
+新增各地运营商的 IPTV 地址： https://github.com/yiille/opkcip/commit/6ebf0c8b6d6deca0f7af552e83f0a4ca571c4a5c
+
+插件推荐： https://github.com/steveabold/mxmmbh/commit/759a3d427914715c66419491ffa7d1dd7ac5f041
+
+视频教程增加： https://github.com/yiille/opkcip/commit/8a6ea493a75c2b7c67b5b21838bc02cf617b5975
+
+咪咕源失效： https://github.com/steveabold/mxmmbh/commit/26520dfa3ca6a633be5d5a5c91b814682e00afc1
+
+2026-06-24 更新各地运营商 IPTV 直播源： https://github.com/yiille/opkcip/commit/0dbc5f1ba0baaa4f32f12f937ba77201bfaa0344
+
+2026-06-24 更新台湾香港海外直播源： https://github.com/steveabold/mxmmbh/commit/b283b474f224a41bf7818cee4d8683128cc7a892
+
+新增辽宁广电直播源： https://github.com/yiille/opkcip/commit/384bcf5d83d998f9ba73400cabb7b9f35dd3a885
+
+新增江西广电直播源： https://github.com/steveabold/mxmmbh/commit/8d7ec76999573d8c2b98f1114329203c6af77db2
+
+新增湖北广电直播源： https://github.com/yiille/opkcip/commit/8848b9977af3493067b0c9320c11dee88ff81989
+
+新增中国广电 cctv + 卫视直播源： https://github.com/steveabold/mxmmbh/commit/20d9d92cc088dd32ebca269bd9ed93da6b6be184
+
+新增辽宁电信 IPTV 直播源： https://github.com/yiille/opkcip/commit/8adfa2a2682e7f04c602783704987429a6029703
+
+2026-06-24 更新台湾香港海外直播源： https://github.com/steveabold/mxmmbh/commit/567fdec3452a8c04d477c7a2c9cfc927c1bc025a
+
+新增辽宁移动直播源： https://github.com/yiille/opkcip/commit/d2c5729dfd2e4f72713a790208b1703df701cc4d
+
+新增浙江杭州华数 IPTV 直播源： https://github.com/steveabold/mxmmbh/commit/3c13bac07b73d2cbb59ba82932e95939f6b0ce5d
+
+新增广东联通 IPTV 直播源： https://github.com/yiille/opkcip/commit/b12ea055053bc89f718bce4445d2647d13627feb
+
+新增四川广电 IPTV 直播源： https://github.com/steveabold/mxmmbh/commit/245389d630895b6c22f3d00399a69c05ea291ea1
+
+新增云南电信 IPTV 直播源： https://github.com/yiille/opkcip/commit/7514afa94fb3f13c60c95e07bb2686e528018ec6
+
+2026-06-24 更新国内电视台直播源： https://github.com/steveabold/mxmmbh/commit/971e753f79cbb4e99971a39c5770d7f61a28411a
+
+新增福建电信 IPTV 直播源： https://github.com/yiille/opkcip/commit/112c05c0ed6a6db51c1ee51c4ee903feaec43413
+
+新增天途云 CCTV + 卫视： https://github.com/steveabold/mxmmbh/commit/02b23df81be63fd620f0caf33c1814d284fc13fd
+
+新增腾讯云 CCTV + 卫视： https://github.com/yiille/opkcip/commit/70d5065f6bcd32b1ac8d56a67556b4e040a1d3c4
+
+新增 CCTV 付费频道直播源： https://github.com/steveabold/mxmmbh/commit/b1f07312d87eeae3791314a39f87a768fb1adf34
+
+新增广播电台： https://github.com/yiille/opkcip/commit/5f7466967571b2b9fabe70c098d6703df277919d
+
+2026-06-24 更新 轮播爱奇艺 CIBN 华数 NewTV 虎牙战旗： https://github.com/steveabold/mxmmbh/commit/3449db2ded3d788b35a671d8b3f99b9f691749f7
+
+2026-06-24 更新 台湾香港海外直播源： https://github.com/yiille/opkcip/commit/2ef123b5e82ec72abfa9d44e603b14dbe94b8268
+
+2026-06-24 更新 国内电视台直播源： https://github.com/steveabold/mxmmbh/commit/febd5674ffb299cb34b0022c97e1e494aedefedf
+
+国家直播源： https://github.com/yiille/opkcip/commit/83b5cbae08e8c53a96b10aa273b0caa3d83a1abd
+
+直播源： https://github.com/steveabold/mxmmbh/commit/22c6bf8bb98d2d4405601de057ea498b74a58bad
+
+影视剧场： https://github.com/yiille/opkcip/commit/3f5d56b9a09a45ed31da1f59100ad1f480709593
+
+台湾香港澳门： https://github.com/steveabold/mxmmbh/commit/5182dcf94297688e43a4969108dea9475ed171d7
+
+国外电视台： https://github.com/yiille/opkcip/commit/94d8969c900251e85d2b637ab87e722433dc759c
+
+国内电视台： https://github.com/steveabold/mxmmbh/commit/37befe69d8d656d7e908ced82d0459b23db4f3a2
+
+更早期 2026-06-24 更新： https://github.com/yiille/opkcip/commit/4ba597bb81bab2129358bf86315ceb8788c0e3f8
+
+各地运营商 IPTV 直播源： https://github.com/steveabold/mxmmbh/commit/7b8e46dab3f9a88a3361da9413e12f63d7b13fd3
+
+全国可用直播源： https://github.com/yiille/opkcip/commit/08939506277bd278072892e65b888fb0ac4f9ebe
+
+2026-06-24 更新： https://github.com/steveabold/mxmmbh/commit/1b1c62b252360ade0605b818929e1facfd31f41e
+
+赞助者： https://github.com/yiille/opkcip/commit/3faf20ed695a08e81f336ddd0044a48a3f26e8f9
+
+文章： https://github.com/steveabold/mxmmbh/commit/13d5974da91f7448d3835f59e0740a6ad86bcb03
+
+视频教程： https://github.com/yiille/opkcip/commit/b05db3ac55ff966275cfa46d983e750edb39af35
+
+插件： https://github.com/steveabold/mxmmbh/commit/468a3be721f37a213c80fbb22d2d76d8ec8dd124
+
+工具： https://github.com/yiille/opkcip/commit/4317df14799502c216b061dcb6f147ac35969dba
+
+URL： https://github.com/steveabold/mxmmbh/commit/8a5facb5ce364857d31042761af81113af7f5a18
+
+目录： https://github.com/yiille/opkcip/commit/2320ab2849e01229f4bf40b80bdebc2c49fa25e5
+
+喀麦隆直播电视频道： https://github.com/steveabold/mxmmbh/commit/cb265464f928eeeb86671f3c974b3a097f9dbd28
+
+阿富汗直播电视频道： https://github.com/yiille/opkcip/commit/f374d99a7b2d65b7238836ec5058635634fce822
+
+海地的直播频道： https://github.com/steveabold/mxmmbh/commit/1495787212e2ae28800edceb8f74d942479af03c
+
+高棉直播和泰国电视，电影和电视剧： https://github.com/yiille/opkcip/commit/9fd842d4c40433b46002a4ed5119362a825ce036
+
+厄瓜多尔直播频道： https://github.com/steveabold/mxmmbh/commit/88c183f78e041c216fd0fdb3ff1ae4675537f8e8
+
+玻利维亚直播频道： https://github.com/yiille/opkcip/commit/89861ed1d124ca4cbb293bfec44eaf3132c5be74
+
+萨尔瓦多直播频道： https://github.com/steveabold/mxmmbh/commit/e3bb4722221e1e870440f0a535c4cb0584035ba8
+
+危地马拉直播频道： https://github.com/yiille/opkcip/commit/d959c4e8ad40603c15d0610de4c21eca58fd9028
+
+洪都拉斯直播频道： https://github.com/steveabold/mxmmbh/commit/21f5727834278b1f93a696403dab5bbaceb21a8c
+
+多米尼加共和国直播频道： https://github.com/yiille/opkcip/commit/2e48c208692cfc3b5e34449d63996e36230cf9cf
+
+哥斯达黎加直播频道： https://github.com/steveabold/mxmmbh/commit/a10910ecca2015ffaadf9833f7a92ea36739a38b
+
+来自世界各地的个电视频道和个摄像机： https://github.com/yiille/opkcip/commit/a76b9e30e60daf0e5e350a78cc38b81545b3574f
+
+免费数据库： https://github.com/steveabold/mxmmbh/commit/4dfb838eed574a806dc4de29b2fb9a74bcf57dc2
+
+公共链接到互联网上传输的个线性电视频道和个线性无线电频道： https://github.com/yiille/opkcip/commit/fd7ed0e027a514da2cc85cd478c2cc25b6b0afcc
+
+超过个国家地区的个高清频道和： https://github.com/steveabold/mxmmbh/commit/6e1cbf4df6f75b92b88369af5c10575d0779104f
+
+超过个直播电视频道影视节目： https://github.com/yiille/opkcip/commit/4a9f52bbd63e2fb7d72a2cfda1fd5f424c11c8e2
+
+提供商列表： https://github.com/steveabold/mxmmbh/commit/a2fbd531af24ff0d6931c038a18ac8a37b4428bb
+
+提供者： https://github.com/yiille/opkcip/commit/ccec8102a5bb57f74bb73bc753f82f7ab820255d
+
+客户端服务器媒体播放器： https://github.com/steveabold/mxmmbh/commit/22ebadb7c5bc80af3f397956070cb963b22889b1
+
+支持播放列表文件： https://github.com/yiille/opkcip/commit/6c1710161b35c6c1a1d0f27084280c87bb389b93
+
+启用投屏的应用程序，可让您将收藏的视频从移动设备流式传输到电视： https://github.com/steveabold/mxmmbh/commit/c6a96ed7cd010f0d6ef735937fd0787c824eebb3
+
+完整的用户定义的高级 IPTV 解决方案，用于实时和非实时电视流： https://github.com/yiille/opkcip/commit/c6f7f448eefc86f91a617094784b2abc60d3d8cd
+
+点 即可： https://github.com/steveabold/mxmmbh/commit/7605890823015f787787526186337f36d47c7dd0
+
+第三行不用管： https://github.com/yiille/opkcip/commit/0317fb6846426e17ceb0e674124a5826a524de24
+
+第二行输入上面给你的地址： https://github.com/steveabold/mxmmbh/commit/cdbbab81c57696d14fc06cfb09fed5c2c01ab11a
+
+第一行随意输入一个名字： https://github.com/yiille/opkcip/commit/26ce1bc62eea5d0d84ce4c2a999cb04754518f98
+
+选择 远程播放列表文件： https://github.com/steveabold/mxmmbh/commit/a6949ba8ba355c1310dfda7f672dad42c4883146
+
+打开 点击 号： https://github.com/yiille/opkcip/commit/c0584968d766ec5e434d1f85b5b033dfcc0f1009
+
+食用指南： https://github.com/steveabold/mxmmbh/commit/a413bd35822ac2aa0c3c5e6a80785c6722353d98
+
+适用于 macOS 的现代媒体播放器： https://github.com/yiille/opkcip/commit/c5a52f11e812adde1c657a20deb7426ef70f2d5d
+
+直播电视和广播客户端插件： https://github.com/steveabold/mxmmbh/commit/89c65c7341861aac95f22180f9fc1df43c1a3f08
+
+具有库支持的免费跨平台媒体播放器： https://github.com/yiille/opkcip/commit/c1475d85c940a6129f75fc7bb54fdbfc7deaf746
+
+免费开放源代码的便携式跨平台媒体播放器： https://github.com/steveabold/mxmmbh/commit/d9e826dca1708da216288ecda1ca482ec681443b
+
+支持 IPTV 流的应用程序： https://github.com/yiille/opkcip/commit/8b5a096d0e666a2ad58ff7f20e29768544c84797
+
+工具： https://github.com/steveabold/mxmmbh/commit/a27b684f140e5fae5bce429b5157cd414747b606
+
+轮播华数求索爱奇艺 2026-06-24 更新： https://github.com/yiille/opkcip/commit/412412b02b5fa02647b4beb909a435a8a55877e1
+
+台湾、香港、澳门、韩国、日本、美国、加拿大、英国、意大利、德国、法国、西班牙、南美等国： https://github.com/steveabold/mxmmbh/commit/f023bb0b708de47e33950568d05a9efd11195de3
+
+台湾香港海外直播源 2026-06-24 更新： https://github.com/yiille/opkcip/commit/3f71b3bf25ed1fdb5d24365dc294cdc4f574ebcc
+
+各大卫视、上千个地方台： https://github.com/steveabold/mxmmbh/commit/f4b614218c88720268b6cfabf54b83f7b35e8ca0
+
+国内电视台直播源 2026-06-24 更新： https://github.com/yiille/opkcip/commit/248fdd43bf9aebbe8de7b56e89604feda79da945
+
+卫视腾讯云： https://github.com/steveabold/mxmmbh/commit/e0bcc4606ae797839191f0979ffdd3bde5fcfe97
+
+卫视平顶山学院教育网： https://github.com/yiille/opkcip/commit/684b34c94f2063a126ebe23b758a8575fd4154ea
+
+卫视天途云： https://github.com/steveabold/mxmmbh/commit/9406a2a27d64322c94d05972ba615798ec454b8c
+
+卫视地方台安徽农大： https://github.com/yiille/opkcip/commit/c98dc6b31c34752430e7b43f65b8dfccc8f15a01
+
+卫视北京凤凰探索星空卫视北京邮电大学校园网： https://github.com/steveabold/mxmmbh/commit/ee0f91805ff037710d61ff44940bc8f11da60b21
+
+央视卫视广西移动直播源： https://github.com/yiille/opkcip/commit/6bea1a3a3c9fb5ab29fcb84370de1c1c69e82a2e
+
+付费频道直播源： https://github.com/steveabold/mxmmbh/commit/391f40492af008ec4432969e462ff1d785990761
+
+国家直播源多个全部有效： https://github.com/yiille/opkcip/commit/0c676207488d7ed34129a94526b2adabed7e5167
+
+直播源全部有效： https://github.com/steveabold/mxmmbh/commit/388a4f709ec76fcec4711d681d93dddd38a26c5f
+
+全部有效： https://github.com/yiille/opkcip/commit/2cac911ef44a4c43570cc7947c5061427b7e8278
+
+直播源全部有效老电脑别用： https://github.com/steveabold/mxmmbh/commit/dcdd099736c1137ecef6b84ade4957671b450648
+
+影视剧场全部流畅： https://github.com/yiille/opkcip/commit/fa15ee22fac92e7981b9a448483dca3181286c11
+
+全部可用： https://github.com/steveabold/mxmmbh/commit/c38198078aa409a3ed1fab669fc7bca365bcf8be
+
+我的播放源： https://github.com/yiille/opkcip/commit/ccfd7ca677ac5e08aa0912cfd8a4f37fdbef03f7
+
+其他直播源 不确定有效性： https://github.com/steveabold/mxmmbh/commit/22d9b5b9cda530a5b752ad6b1b3d5c639f58bef2
+
+新疆电信组播 IPTV 直播源下载地址： https://github.com/yiille/opkcip/commit/5de615301c00dfeb416cc3326e56942cbfce5551
+
+新疆 IPTV 直播源： https://github.com/steveabold/mxmmbh/commit/5d84fa3b9bbe41b933da4643b6c76fefe0513c52
+
+内蒙古联通 udp 组播下载地址： https://github.com/yiille/opkcip/commit/d8b7037ec8a941094984fff1dc6439aa49c58806
+
+内蒙古联通 IPTV 直播源下载地址： https://github.com/steveabold/mxmmbh/commit/601914ed0e1444a12c610c5c7b86a8efa90b9fb2
+
+内蒙古电信组播 IPTV 直播源下载地址： https://github.com/yiille/opkcip/commit/f5b928515dab6ec7c0e0c4e36999510c0efc4e72
+
+内蒙古电信 IPTV 直播源下载地址： https://github.com/steveabold/mxmmbh/commit/5caf94bdc6026318d73a0acdd48298dbebb0d495
+
+内蒙古 IPTV 直播源： https://github.com/yiille/opkcip/commit/6f34011f387c2c512acbd98a69491ecbd33a875b
+
+黑龙江联通组播 IPTV 直播源下载地址： https://github.com/steveabold/mxmmbh/commit/c60ea22f98dcfbbdf38d5664960223554f70d4b0
+
+黑龙江移动 3IPTV 直播源下载地址： https://github.com/yiille/opkcip/commit/6ba34e858d730da164ea358da268045bcc64cd7d
+
+黑龙江移动 2IPTV 直播源下载地址： https://github.com/steveabold/mxmmbh/commit/fe230b0a92721ef50ba386c8c5a896ba99cf7568
+
+黑龙江移动 IPTV 直播源下载地址： https://github.com/yiille/opkcip/commit/b48371179fb65918cced06d7df10ae61358c4989
+
+黑龙江 IPTV 直播源： https://github.com/steveabold/mxmmbh/commit/51b15bb922e4644cd87ff83b29dfe5022786f027
+
+吉林电信组播 IPTV 直播源下载地址： https://github.com/yiille/opkcip/commit/1ea41e46079be585c68d93085d4a4366a15e3154
+
+吉林 IPTV 直播源： https://github.com/steveabold/mxmmbh/commit/fb4aba842fba0a738ffdea2c3a906f40dcb5e6f7
+
+辽宁移动直播源下载地址： https://github.com/yiille/opkcip/commit/0b762beaf5f0cc5e5e2459b682ee6004fe72b60f
+
+辽宁电信 IPTV 直播源下载地址： https://github.com/steveabold/mxmmbh/commit/ba62a5339fc218b93b9e22acf4ddd56045035c70
+
+辽宁大连联通 IPTV 组播直播源下载地址： https://github.com/yiille/opkcip/commit/e05d834e6acd453c32bcede58f244fd4f252d7f5
+
+辽宁联通组播 IPTV 直播源下载地址： https://github.com/steveabold/mxmmbh/commit/be8966897b019ea21a9f917abf5d34dcc382f54e
+
+辽宁联通 IPTV 直播源下载地址： https://github.com/yiille/opkcip/commit/0d7b43b9d907aade9e884eaec3281203af1f98ae
+
+辽宁 IPTV 直播源： https://github.com/steveabold/mxmmbh/commit/dce00a7f9e4ddfd486c33abef263359ab2d5b560
+
+浙江电信组播 IPTV 组播直播源下载地址： https://github.com/yiille/opkcip/commit/aad5e56b23afcba2e71ba205684952d16488c34f
+
+浙江电信 IPTV 组播直播源下载地址： https://github.com/steveabold/mxmmbh/commit/9ed9b508b2805ba79f850fdaab20d4218375835e
+
+浙江联通 IPTV 直播源下载地址： https://github.com/yiille/opkcip/commit/0cb90911677aa1192c952eb52c26571f3d64113a
+
+浙江移动 IPTV 直播源下载地址： https://github.com/steveabold/mxmmbh/commit/019e61ee5735058b871d08ba749988feaed5e796
+
+浙江 IPTV 直播源： https://github.com/yiille/opkcip/commit/1e7a24ea8da7fb3908fafdcc5d8391619c8ccda7
+
+江西联通 IPTV 直播源下载地址： https://github.com/steveabold/mxmmbh/commit/4b9e60af8a28a36780574b66df860f1c1fdb2678
+
+江西电信组播 IPTV 直播源下载地址： https://github.com/yiille/opkcip/commit/88e12f9182f2e447c39f4044849373565ebffb28
+
+江西电信 IPTV 直播源下载地址： https://github.com/steveabold/mxmmbh/commit/fc94d4c0c2cbdadc16ab38d33f472add27b9572b
+
+江西移动 IPTV 直播源下载地址： https://github.com/yiille/opkcip/commit/2e9aa9b903806eadb06fc65438daca2379f8703b
+
+江西 IPTV 直播源： https://github.com/steveabold/mxmmbh/commit/db404d56f8792a008d1d9bc5e928004c6e3ba79e
+
+江苏移动 IPTV 直播源下载地址： https://github.com/yiille/opkcip/commit/9bc20539194f864ad8a53093c26673008841f5db
+
+江苏电信组播 IPTV 直播源下载地址： https://github.com/steveabold/mxmmbh/commit/1d95ad8c6c36974eb9fb46c3336f7471d1c47289
+
+江苏泰州电信 IPTV 直播源下载地址： https://github.com/yiille/opkcip/commit/bdd328ebd2fd02df93932eb448d6bf896a9f62ad
+
+江苏南京电信 2IPTV 直播源下载地址： https://github.com/steveabold/mxmmbh/commit/c330f050a83ed65ba053da1e943b84b8bd2d6535
+
+江苏南京电信 IPTV 直播源下载地址： https://github.com/yiille/opkcip/commit/979c632dbea29c0da064427c75f3a361b1d5c012
+
+江苏电信 IPTV 直播源下载地址： https://github.com/steveabold/mxmmbh/commit/548affa399a2dd8fe79db180bb8b770dc05c9ee6
+
+江苏 IPTV 直播源： https://github.com/yiille/opkcip/commit/dc9ce9fc6c3e4834a3b0456b03debdcdf052ac5c
+
+安徽广电 IPTV 直播源下载地址： https://github.com/steveabold/mxmmbh/commit/3cc1e6d3baed5f73db83a845c494897705e09f98
+
+海南电信组播 IPTV 直播源下载地址： https://github.com/yiille/opkcip/commit/3619527ddc073d1f08618d8c953820039fac8cb3
+
+海南联通组播 IPTV 直播源下载地址： https://github.com/steveabold/mxmmbh/commit/21bd9ebda5e9d64f0870b8937a6ddd9ee6660520
+
+提供所有优质的英国，爱尔兰，德国，土耳其，阿拉伯语，美国和加拿大频道
+超过个俄罗斯频道和天的节目存档
+起初这里仅收录美加墨世界杯直播地址，配合赛程比分对阵供调用
+后来疫情来了，这里又增加了世界各国公共频道，及国内部分区域 IPTV，希望带给隔离中的些许心理依托
+然后转眼三年了，还这样子，且没有转好的迹象 相信这段浓墨重彩的一笔世人铭记
+眼下 美加墨世界杯
+再次祝愿所有人百毒不侵 希望动态清零早日过去，请大家务必坚信明天是崭新的
+这个项目的存在要感谢所有贡献者
+请给我们一个 点赞支持我们 谢谢
+并感谢所有支持者2026年06月24日07时52分43秒
+来源：https://github.com/yiille/opkcip/commit/4f874915419417e59461b23d90aff5ef665a4ea6
+
+来源：https://github.com/steveabold/mxmmbh/commit/f0a04748f6e781e108781cdc4b6afb11f81369e4
+
+来源：https://github.com/yiille/opkcip/commit/3644f277d0d53183f984326819e50ef4682280fd
+
+来源：wefhsdhcvWESDCSDwefsdf.cn
+2026年06月24日，07时52分43秒
