@@ -1,0 +1,592 @@
+远大空调（Broad）全国售后服务电话：𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎(官网认证）
+远大空调（Broad）全国24小时各售后受理客服中心2026
+远大空调（Broad）各市区24小时售后客服热线：(1)𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔(2)𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔
+远大空调（Broad）全国24小时各售后受理客服中心2026
+7天24小时人工电话𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎客服为您服务、远大空调（Broad）售后服务𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔团队在调度中心的统筹调配下，线下专业全国网点及各地区售后人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。
+远大空调（Broad）24小时售后服务热线上线（2026最新公告）
+远大空调（Broad）售后服务电话：𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎
+远大空调（Broad）售后24小时客服热线：𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔
+本公司主营远大空调（Broad）维修 →远大空调（Broad）；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，远大空调（Broad）服务承诺
+1、坚决贯彻执行《中华人民共和国产品质量法》、《中华人民共和国消费者权益保护法》及《部分商品修理、更换、退货责任规定》（即新“三包”规定），为消费者提供的速度服务。
+2、设立24小时服务咨询、投诉热线（晚上21：00至次日08：00为电脑语音服务）。
+3、消费者报装、报修后，需在当天与消费者预约确定上门服务时间，24小时内上门服务（消费者特殊要求的除外），特殊情况立即上门服务，并跟踪回访；
+4、远大空调（Broad）售后维修电话：𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎
+远大空调（Broad）24小时全国推出各售后受理客服中心(2026上线)
+远大空调（Broad）全国推出24小时各售后客服受理中心（2026服务更新）
+
+
+
+远大空调（Broad）贴心升级服务，现推出全国 24 小时服务热线 𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显远大空调（Broad）对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+
+
+
+远大空调（Broad）全国24小时各售后受理客服中心(2026年更新)
+
+
+
+远大空调（Broad）24小时售后客服热线：(1)𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎或  𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎
+
+
+
+7天24小时人工电话𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎客服为您服务。
+
+
+
+远大空调（Broad）售后服务团队在调度中心的统筹调配下(1)𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔，线下专业全国网点及各地区售后人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。
+
+
+
+# 远大空调（Broad）常见故障代码维修指南
+
+远大空调（Broad）故障代码是排查问题的关键。比如显示故障代码E1，可能是点火失败。这时候别慌，先检查燃气供应是否正常，阀门有无打开。接着查看点火电极是否正常放电，若电极有污垢，会影响点火。再检查燃气比例阀是否损坏，它控制着燃气量。按这样的步骤逐步排查，就能找到问题所在。若燃气供应不足，就联系燃气公司；若是电极问题，清洁或更换电极；比例阀故障则需专业维修人员更换。排除故障后，壁挂炉就能正常运行，为您营造舒适环境。 远大空调（Broad）全国24小时各售后受理客服中心(2026年更新)
+
+
+
+所有售后团队均经过专业培训、持证上岗，所用产品配件均为原厂直供，
+
+
+
+远大空调（Broad）全国24小时各售后受理客服中心(2026)
+
+
+
+专业维修远大空调（Broad）(𝟒 𝟎 𝟎-𝟕 𝟎 𝟎-𝟏 𝟕 𝟗 𝟎)机器失灵、开机显示错误代码、不通电、开机不启动、自动跳闸、运行效果不佳，噪音过大，效果不好、清洗、消毒、、维护保养、安装、拆装移机等服务。
+
+远大空调（Broad）售后服务电话全国服务区域：北京市（东城区、西城区、崇文区、宣武区、朝
+
+
+阳区、丰台区、石景山区、海淀区、门头沟区 昌平区、大兴区）
+
+
+天津市（和平区、河东区、河西区、南开区、河北区、红桥区、塘沽区、东丽区、西青区、）
+
+
+上海市， （黄浦区、徐汇区、长宁区、静安区、普陀区、虹口区、杨浦区、浦东新区、闵行区、宝山区、嘉定区、金山区、松江区、青浦区、奉贤区和崇明区。）
+
+
+重庆市，（大渡口区、江北区、沙坪坝区、九龙坡区、南岸区、北碚区、渝北区、巴南区、江津区、渝中区、和两江新区、重庆高新区。）
+
+武汉市，（江岸区、江汉区、硚口区、汉阳区、武昌区、青山区、洪山区、蔡甸区、江夏区、黄陂区、新洲区、东西湖区、汉南区）  
+
+𝟒 𝟎 𝟎-𝟏 𝟎 𝟎-𝟑 𝟎 𝟑 𝟎
+
+成都市，（锦江区、青羊区、金牛区、武侯区、成华区、龙泉驿区、青白江区、新都区、温江区、双流区、郫都区、新津区）
+
+
+南京市，（玄武区、秦淮区、建邺区、鼓楼区、浦口区、栖霞区、雨花台区、江宁区、区、溧水区、高淳区。）
+
+
+杭州市，（滨江区、萧山区、余杭区、临安区、富阳区、上城区、下城区、西湖区。）
+
+
+无锡市，（锡山区、惠山区、滨湖区、梁溪区、新吴区；江阴市、宜兴市。）
+
+
+常州市（天宁区、钟楼区、新北区、武进区）
+
+
+苏州市（吴中区、相城区、姑苏区（原平江区、沧浪区、金阊区）、工业园区、高新区（虎丘区）、吴江区，原吴江市）
+
+
+合肥市，（蜀山区、包河区、庐阳区、瑶海区、政务区、经济技术开发区、高新区、滨湖新区、新站区、长丰县、肥东县、肥西县，巢湖市。）
+
+全国推出24小时各售后客服受理中心（2026服务更新）
+AI Builders Digest 今日热点快报<br>2026年06月24日07时53分00秒(UTC+8)##
+wefhsdhcvWESDCSDwefsdf.cn
+远大空调（Broad）贴心升级服务，现推出全国 24 小时服务热线 𝟒 𝟎 𝟎-𝟔 𝟎 𝟗-𝟎 𝟔 𝟎 𝟔。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显远大空调（Broad）对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+直播源相关资源汇总 (省近 fnf 行)
+现在各个宽带运营商都有 IPTV 业务，不用安装有线电视就可以高清无卡顿的看电视
+没有开通 iptv 可以使用抓取的直播源地址，复制到电脑、手机、电视网络盒子等设备上看，如果动手能力强也可以自己抓包获取直播源
+由于版权原因很多电视直播软件播放时会卡顿、画面不清晰
+江苏南京电信 IPTV 直播源下载地址： https://github.com/naoyaverek/vomtfy/commit/05221bf48f0dce67e427ad8ea08408d8b045e8b8
+
+江苏电信 IPTV 直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/033fa05e7ed2c6e570be6dcfaaa94332db55c2a9
+
+江苏 IPTV 直播源： https://github.com/naoyaverek/vomtfy/commit/ad2a9f9afaa209322dde4b944bbe67d7c7ec68bf
+
+安徽广电 IPTV 直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/85d0e6c5a0ce2f3c86d86d37f255c572a7a068a3
+
+海南电信组播 IPTV 直播源下载地址： https://github.com/naoyaverek/vomtfy/commit/0f5b8837e76abf6b0995ccc8939646808e1aa02b
+
+海南联通组播 IPTV 直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/c8e1c18871ccea80d4b2f65d10e45bbafc9b2e03
+
+湖北 IPTV 直播源： https://github.com/naoyaverek/vomtfy/commit/298c7a93539310c6ec4c4f64061b291a7c9d00ca
+
+湖南电信组播直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/83a331c29240640af21e0d9da12f4f3ab42951ff
+
+湖南电信 IPTV 直播源下载地址： https://github.com/naoyaverek/vomtfy/commit/34101d379ca6e4b1ce777334a89c335698d18846
+
+湖南联通组播 IPTV 直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/da3888886c2932360cf65099ed1cee890b56d2e7
+
+湖南联通 IPTV 直播源下载地址： https://github.com/naoyaverek/vomtfy/commit/88bf49959af0cf2fdca8a84590f1e168a864acc9
+
+湖南移动 IPTV 直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/159972a8de016bd37419310879f194874d6c2ce4
+
+湖南 IPTV 直播源： https://github.com/naoyaverek/vomtfy/commit/b34a609b502d4d7d3d33c92897032fceca1049e5
+
+重庆移动组播直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/523141d2dc1d2fb6aeb90934a03e920bf91d95a7
+
+重庆联通组播直播源下载地址： https://github.com/naoyaverek/vomtfy/commit/0878ab8d52b6b256d5945c98e02d020ea3e2fb88
+
+重庆联通直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/7fd5466c13159cc28636da46668c51d88b0d2480
+
+重庆电信组播直播源下载地址： https://github.com/naoyaverek/vomtfy/commit/95ef3514efcec70d194aea0217dfb0d892d95856
+
+重庆电信直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/b3d4dc65fdf4ba59ab7087be6444fabb96b961e3
+
+重庆 IPTV 直播源： https://github.com/naoyaverek/vomtfy/commit/d514f70a21aa745fc965ea662880772286639b39
+
+四川移动组播 IPTV 直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/6d28b1755d2a82ca13adfb0e2176da0fd99e7542
+
+四川电信 IPTV 直播源下载地址： https://github.com/naoyaverek/vomtfy/commit/99f803fa3281e5fe75ed8615f9770cf8944764e1
+
+四川电信 IPTV 组播直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/0ee8b590ffb44676c28bfea11f562c01d3c777b2
+
+四川广电 IPTV 直播源下载地址： https://github.com/naoyaverek/vomtfy/commit/0a12732ebaebbb3a2967417c8d7213993e28334b
+
+四川联通组播 IPTV 直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/a12a24e8f8cf66e5c475103ec5ab2e9686e158c9
+
+四川联通 IPTV 直播源下载地址： https://github.com/naoyaverek/vomtfy/commit/553615bb4c756657f3a39a4c2b1932064b6382a3
+
+四川 IPTV 直播源： https://github.com/cnarver79/nsuvbh/commit/2a29fdf439eb609347f59433108749e8e354b3a0
+
+云南电信组播 IPTV 直播源下载地址： https://github.com/naoyaverek/vomtfy/commit/bea1f5868b36cadfe6205b2ee949bf61a2255928
+
+云南移动 IPTV 直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/28072f5253af617a7253810ea36706226faee343
+
+云南 IPTV 直播源： https://github.com/naoyaverek/vomtfy/commit/d70db9b31b0693b87aa961506243111369b0454b
+
+贵州电信组播 IPTV 直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/e0795099249514b752162a44743c4e47d45f6e59
+
+贵州移动 IPTV 直播源： https://github.com/naoyaverek/vomtfy/commit/d7683a2539ada98bbc98a888867c246d246c0eac
+
+贵州联通组播 IPTV 直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/6dbb8f6fc42e4174f8f0a549a69c93548a45f2e5
+
+贵州联通 IPTV 直播源下载地址： https://github.com/naoyaverek/vomtfy/commit/b60697f1d47db436ed3a40e944b2e0ec0ff52db5
+
+贵州 IPTV 直播源： https://github.com/cnarver79/nsuvbh/commit/284b521f86e8b494233ab90d1eec275c65dda703
+
+福建联通组播 IPTV 直播源下载地址： https://github.com/naoyaverek/vomtfy/commit/d0b0c461a7cb28783a3524bca89b5c8ba0c0ad4e
+
+福建联通 IPTV 直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/b8b5738ec1002a5141059571c233ead775130b5a
+
+福建移动 IPTV 直播源下载地址： https://github.com/naoyaverek/vomtfy/commit/809b710806d0196ff625d832bb5569bfb9a571df
+
+福建电信组播 IPTV 直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/90c9fc523673ece3619b11b3bc2efec88dc46100
+
+福建电信 IPTV 直播源下载地址： https://github.com/naoyaverek/vomtfy/commit/b079213a606ea0f6a0ef9232e31d35d88d51fff1
+
+福建 IPTV 直播源： https://github.com/cnarver79/nsuvbh/commit/c1467834f076c9654f93f012370aa6260ce09bb0
+
+安徽移动 IPTV 直播源下载地址： https://github.com/naoyaverek/vomtfy/commit/7140ef6c75a1b5ddb336b55d81ae802572b18de9
+
+安徽电信 IPTV 组播直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/f8fd2aeb3c9890106aa22229ef01c1bd76cdb5b3
+
+安徽电信 IPTV 直播源下载地址： https://github.com/naoyaverek/vomtfy/commit/c4af1ff7bd191ed160d2a520ba05518f94af863f
+
+安徽联通 IPTV 直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/b38f0f66111feb7636c661333f3ee588a5009ec9
+
+安徽 IPTV 直播源： https://github.com/naoyaverek/vomtfy/commit/ff4ca89871b9b1c745dd5023fbc602bf2e1dda8c
+
+陕西地方台直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/d8e958f9308a3684de9b29245e1847e787095fc9
+
+陕西电信组播 IPTV 直播源下载地址： https://github.com/naoyaverek/vomtfy/commit/95f453234da80b5e151c5a74b959d61b341aefc8
+
+陕西电信 IPTV 直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/ee2bfd5e31c76c855dc7e78d1586cf8a267e1a0f
+
+陕西移动组播 IPTV 直播源下载地址： https://github.com/naoyaverek/vomtfy/commit/b8f763a81b05145488fa5a5461d2df7ee5e04bcb
+
+陕西移动 IPTV 直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/edaf5acf9b5b7519e3987b489c0d6655689c3e46
+
+陕西 IPTV 直播源： https://github.com/naoyaverek/vomtfy/commit/49444b0797a49a98b6297a5f3f36085f9737f319
+
+甘肃电信组播 IPTV 直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/4f2abacf468e812b0a72e131b4f44d86606701f1
+
+甘肃移动 IPTV 直播源下载地址： https://github.com/naoyaverek/vomtfy/commit/6b5933e22835f31cdad56ddf4b4d268d62e03051
+
+甘肃 IPTV 直播源： https://github.com/cnarver79/nsuvbh/commit/21487d68737d7eaac36faebedc014e03eff27f3a
+
+山西移动组播 IPTV 直播源下载地址： https://github.com/naoyaverek/vomtfy/commit/9286dbdfd2ecbc68f38ed27e72996e3391c00d89
+
+山西联通组播 IPTV 直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/58a558b9099092565f4e97b5dc465f6f3533b3d3
+
+山西联通 IPTV 直播源下载地址： https://github.com/naoyaverek/vomtfy/commit/947fa479eb1f36c42dc4de0c2f72ba33018cfd35
+
+山西 IPTV 直播源： https://github.com/cnarver79/nsuvbh/commit/467e3a45c9c916e3c7cf280863fa3f80548d27a5
+
+天津电信组播直播源下载地址： https://github.com/naoyaverek/vomtfy/commit/c951d7b2758a0069a6ac46f67d4832af38cfba95
+
+天津联通组播直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/d34c7dcf470de77620f94b095cc6443f60816ed8
+
+天津 IPTV 直播源： https://github.com/naoyaverek/vomtfy/commit/0b13667e52149edeac33cbd1720cfcfc6df447d6
+
+上海移动直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/e0564a7da818fecadda07a5b212909986f1270e2
+
+上海联通组播直播源下载地址： https://github.com/naoyaverek/vomtfy/commit/e3d89df1df2cc74b0ca0fd4882fe786ea68f83c2
+
+上海联通直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/3dcc0eb3ddaad82fb0f984eac16f6373f64bc7f1
+
+上海电信组播直播源下载地址： https://github.com/naoyaverek/vomtfy/commit/8782efa80d9362c75b889dd020100f30527f6026
+
+上海电信直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/35d3bb0c37b38dd665ecd4bd44611a54c70d9fb6
+
+上海 IPTV 直播源： https://github.com/naoyaverek/vomtfy/commit/79a226bfed2c2dd27c32a0dda6d2fe2a395b228b
+
+北京移动 IPTV 直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/a444cf9bddbdbecad55f1b1cbcf8aac487bbf76e
+
+北京移动组播直播源下载地址： https://github.com/naoyaverek/vomtfy/commit/910b6fc3f7ab350af0b5a50ceabbb57938a54c38
+
+北京电信组播 IPTV 直播源下载地址： https://github.com/naoyaverek/vomtfy/commit/33636b156bbc6b1f9414328e62f89f484942e58f
+
+北京联通组播 IPTV 直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/552d2cf0af9537266f5950cb5110a9d262d7d5da
+
+北京联通 IPTV 直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/10bf253fc77bfc394d12ddbc947e12d164d51caa
+
+北京 IPTV 直播源： https://github.com/naoyaverek/vomtfy/commit/94bd96daf0bc50ec62df33efcaa6ff1eb799d32e
+
+部分地区的移动可全网通用： https://github.com/cnarver79/nsuvbh/commit/f4ad37afd57d9383c0b08cabf47e4c5dce0cff6c
+
+各地运营商 IPTV 直播源，速度稳定画质好，选择你所在地宽带运营商： https://github.com/naoyaverek/vomtfy/commit/402034b9ebb8ad079337febd2ce62469603a15ee
+
+广播电台下载地址： https://github.com/cnarver79/nsuvbh/commit/a8e1e2f7c07838699ef9e76314fc2b37ef15a173
+
+国内景区直播源下载地址： https://github.com/naoyaverek/vomtfy/commit/dcedc002a70ef861db706cb54966bb56592f172f
+
+轮播华数黑莓下载地址： https://github.com/cnarver79/nsuvbh/commit/c4893c4259dac386cbcae15df366a13f2d42b023
+
+台湾香港澳门电视台直播源下载地址： https://github.com/naoyaverek/vomtfy/commit/e3eb81703eb43a496911d14d48d007ff99850101
+
+韩国、日本、美国、加拿大、英国、意大利、德国、法国、西班牙、南美、俄罗斯、中东等： https://github.com/naoyaverek/vomtfy/commit/04f7f15c1c0668fb79ec17041601ce1a4bc83df4
+
+国外电视台直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/f2717b7291f14441404c19790e2f8e5aeda35f5b
+
+卫视地方台安徽农大下载地址： https://github.com/naoyaverek/vomtfy/commit/fb58ed748577b9b6ad46abbf2ef0269dd4b0a535
+
+卫视北京凤凰探索星空卫视北京邮电大学校园网下载地址： https://github.com/cnarver79/nsuvbh/commit/db3c19b49e29139772488e2f753fb53196d984de
+
+卫视上海源下载地址： https://github.com/naoyaverek/vomtfy/commit/30b6b7c1cfb9c18bfc64b0d78816dc5cfb3b37c0
+
+卫视重庆广电 下载地址： https://github.com/cnarver79/nsuvbh/commit/db685ba3614c2451d0cbfd7bd2215707414757ea
+
+卫视百视 TV 下载地址： https://github.com/naoyaverek/vomtfy/commit/5abfc9819da7d0fec71d544f7d3d9d6191f836d0
+
+移动 IPv6 直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/3be5358f1c5b01cb1caebbcf73c2206c30347103
+
+国内电视台 IPv6 直播源下载地址： https://github.com/naoyaverek/vomtfy/commit/66668cd6999284db6f6a72e47aa5ee7f6285c563
+
+各大卫视、上千个地方台： https://github.com/cnarver79/nsuvbh/commit/ce8c312d5a69c41f76a2db0f599154aa8b89a304
+
+国内电视台直播源下载地址： https://github.com/naoyaverek/vomtfy/commit/d4a4730c123ed82e6859f124a77424aea1de8d48
+
+全国可用直播源： https://github.com/cnarver79/nsuvbh/commit/1267a43718688ca58dc3f872106e1e025241d4b0
+
+包括完整内容所有已知频道： https://github.com/naoyaverek/vomtfy/commit/7f20271eed7b7eb351ba56f7e470cf1fc742d4fa
+
+除成人内容以外的已知频道： https://github.com/cnarver79/nsuvbh/commit/205290e6985e0b31122ef2588ce6cce58149c48c
+
+收集来自世界各地公开可用的 IPTV： https://github.com/naoyaverek/vomtfy/commit/0260f4c0ef1f2598ad8d701a3595f6b386cd1d49
+
+稳定地址： https://github.com/cnarver79/nsuvbh/commit/4dfea84dc9542f3f57bbcc90982696371d26f97f
+
+2026-06-24 更新 CCTV 等世界杯相关 HD 播放源： https://github.com/naoyaverek/vomtfy/commit/67dcedf1b6d1139fc0d5f1a10836659423616701
+
+2026-06-24 更新 IPTV 工具： https://github.com/cnarver79/nsuvbh/commit/cca97a610effdcfc6600e59f4c86750576b77e63
+
+2026-06-24 更新世界各地 IPTV 频道： https://github.com/naoyaverek/vomtfy/commit/bea69a01d262499ca5d2b0dd25f59eb244d37aef
+
+2026-06-24 更新全国可用直播源： https://github.com/cnarver79/nsuvbh/commit/db485ed55529b7c3e01c84b1dc278ccdca0979fe
+
+新增各地运营商的 IPTV 地址： https://github.com/naoyaverek/vomtfy/commit/5bb44a43e86be67a1c346ad699b9e56f76e1be63
+
+插件推荐： https://github.com/cnarver79/nsuvbh/commit/c9d8418ddf623cc31b2a246c487fef7ab1b08cf4
+
+视频教程增加： https://github.com/naoyaverek/vomtfy/commit/79719a83d63dcede6b3653d62b28308c98256521
+
+咪咕源失效： https://github.com/cnarver79/nsuvbh/commit/22d7a099d7b264cd544276acebff574d4b301eba
+
+2026-06-24 更新各地运营商 IPTV 直播源： https://github.com/naoyaverek/vomtfy/commit/fec3ee248538b1774f649fd98b10e0f73ef6908d
+
+2026-06-24 更新台湾香港海外直播源： https://github.com/cnarver79/nsuvbh/commit/f697230406cabd5f98c9b507b136cff113cb0f7c
+
+新增辽宁广电直播源： https://github.com/naoyaverek/vomtfy/commit/a707f2e0a10268ac83543d4223f0036a68ddda8d
+
+新增江西广电直播源： https://github.com/cnarver79/nsuvbh/commit/a3590aa0df3a52cb792a8221c563ad72698b7070
+
+新增湖北广电直播源： https://github.com/naoyaverek/vomtfy/commit/46fb4129ec4fbc3b56f05fac512acef486a441f5
+
+新增中国广电 cctv + 卫视直播源： https://github.com/cnarver79/nsuvbh/commit/678b0cb06a8513f73d85a6c37f3ea904234e43f8
+
+新增辽宁电信 IPTV 直播源： https://github.com/naoyaverek/vomtfy/commit/402916efad00304e1ae71ad3ff2cc1e4f5870e3e
+
+2026-06-24 更新台湾香港海外直播源： https://github.com/cnarver79/nsuvbh/commit/056ec169fed89ed0ceef46d7c786ebdc25029c0e
+
+新增辽宁移动直播源： https://github.com/naoyaverek/vomtfy/commit/1ca0310fa6ba08ab7f99a98b671c388043354ac3
+
+新增浙江杭州华数 IPTV 直播源： https://github.com/cnarver79/nsuvbh/commit/019f8fe7c3e88a5f3e9d690fed52f86be1458ee4
+
+新增广东联通 IPTV 直播源： https://github.com/naoyaverek/vomtfy/commit/fe029bc9b091cba5bb504c2866a29630f3185c41
+
+新增四川广电 IPTV 直播源： https://github.com/cnarver79/nsuvbh/commit/7c1db7b6f899ed91507891f69ae68960f6d4a3ea
+
+新增云南电信 IPTV 直播源： https://github.com/naoyaverek/vomtfy/commit/e73c8e0441454907124effa304a7ce7cbc76d227
+
+2026-06-24 更新国内电视台直播源： https://github.com/cnarver79/nsuvbh/commit/95f7ece2bdca67f3edda37d7f4554c64bd7f7247
+
+新增福建电信 IPTV 直播源： https://github.com/naoyaverek/vomtfy/commit/4029838b171d887f0937df9a3382474bc8326f10
+
+新增天途云 CCTV + 卫视： https://github.com/cnarver79/nsuvbh/commit/456003922e7b40bbf55f9803e8fe279ae168b217
+
+新增腾讯云 CCTV + 卫视： https://github.com/naoyaverek/vomtfy/commit/bda150b9ea64b62f09dabbcbde13af9b3f35d103
+
+新增 CCTV 付费频道直播源： https://github.com/cnarver79/nsuvbh/commit/0daa9dc894d868c328a41a5a86cbcbeb96e72c21
+
+新增广播电台： https://github.com/naoyaverek/vomtfy/commit/44bf85efe3d8463604eca6cc92cf521018b5ab5b
+
+2026-06-24 更新 轮播爱奇艺 CIBN 华数 NewTV 虎牙战旗： https://github.com/cnarver79/nsuvbh/commit/3c05fb046d6b0c36457d67bdb642bbb452101bdc
+
+2026-06-24 更新 台湾香港海外直播源： https://github.com/naoyaverek/vomtfy/commit/a3b0d6a4ac1d2e210e050d6bef1abb2c3af046ea
+
+2026-06-24 更新 国内电视台直播源： https://github.com/cnarver79/nsuvbh/commit/2efd5be3e4c14434b82c0767b502ec474e8bc795
+
+国家直播源： https://github.com/naoyaverek/vomtfy/commit/1ccb94c18c44cc3539b0bfaab0cbba12a91b1125
+
+直播源： https://github.com/cnarver79/nsuvbh/commit/088e969124ab0b67576de6a762656cee21cd244a
+
+影视剧场： https://github.com/cnarver79/nsuvbh/commit/2de157fbf560f2d12223d1f69172831ba7caf0ea
+
+台湾香港澳门： https://github.com/naoyaverek/vomtfy/commit/73c477a2329762d024755915cfb57b73fd4eaedd
+
+国外电视台： https://github.com/cnarver79/nsuvbh/commit/732325d5eba767cdb42697e3f852af4a588cbe9d
+
+国内电视台： https://github.com/naoyaverek/vomtfy/commit/dec9517ee7ef3fcd10184a0321c6fbf86b62a347
+
+更早期 2026-06-24 更新： https://github.com/cnarver79/nsuvbh/commit/47a517fb052fe767e68b8f79bb2e810503430f39
+
+各地运营商 IPTV 直播源： https://github.com/naoyaverek/vomtfy/commit/805ea44c5a96cb768a08c57409ed423f02fca8c4
+
+全国可用直播源： https://github.com/cnarver79/nsuvbh/commit/d15dd44343ff8c94919e597caf97cb7d2245d133
+
+2026-06-24 更新： https://github.com/naoyaverek/vomtfy/commit/948b85ed36b4facb9611413aa79adde4df23dc86
+
+赞助者： https://github.com/cnarver79/nsuvbh/commit/827b8f3aa889d17b3279af0d0903803dcbbc363c
+
+文章： https://github.com/naoyaverek/vomtfy/commit/3a8fb7fd1b109cc2d86a4b358079f42db4c5689c
+
+视频教程： https://github.com/cnarver79/nsuvbh/commit/37d9393fb6be166f1dac4da109c2487e6f32dff2
+
+插件： https://github.com/naoyaverek/vomtfy/commit/9e2a5ce08b35f21f0ca2f3cbeb55996c8342d896
+
+工具： https://github.com/cnarver79/nsuvbh/commit/5648267146635a08d1938f12e9c5f8c3fbe8872c
+
+URL： https://github.com/naoyaverek/vomtfy/commit/3266300f5fead2b2a8c3a306dc52edf3b44f7cca
+
+目录： https://github.com/cnarver79/nsuvbh/commit/5b239bfb7dea92d0f4d13070d8830023679d8f0e
+
+喀麦隆直播电视频道： https://github.com/naoyaverek/vomtfy/commit/0872bf5c305ac84151dd921da108774ba14184c7
+
+阿富汗直播电视频道： https://github.com/cnarver79/nsuvbh/commit/f85fe8c9ebc4beb10c3b8b02a917b0a12ead2633
+
+海地的直播频道： https://github.com/naoyaverek/vomtfy/commit/fb34bf68d286997d5f80b12de65141b95f77240b
+
+高棉直播和泰国电视，电影和电视剧： https://github.com/cnarver79/nsuvbh/commit/d2dea295de8000fc5ae20f2b09cdc4b1c6af2210
+
+厄瓜多尔直播频道： https://github.com/naoyaverek/vomtfy/commit/e908288dcce6ef8bb0182d1eba22aa150eac5ecd
+
+玻利维亚直播频道： https://github.com/cnarver79/nsuvbh/commit/c0439207b0d665613cde1ffadb7f6a99145d804e
+
+萨尔瓦多直播频道： https://github.com/naoyaverek/vomtfy/commit/00a51bf49744de13add59ccc148f7134115588c8
+
+危地马拉直播频道： https://github.com/cnarver79/nsuvbh/commit/f3ea7b4213b369f5396100ff466792ce81ac9e8d
+
+洪都拉斯直播频道： https://github.com/naoyaverek/vomtfy/commit/162d14432d12c92686b3c94bb93de411cac67703
+
+多米尼加共和国直播频道： https://github.com/cnarver79/nsuvbh/commit/331326dbd5c930d413d237f6a637e2b5e5f9981d
+
+哥斯达黎加直播频道： https://github.com/naoyaverek/vomtfy/commit/51998ea5fb329cd02f5a35d8e57a1a67f20e268b
+
+来自世界各地的个电视频道和个摄像机： https://github.com/cnarver79/nsuvbh/commit/56d2116f9a18c4c7895036666e681ff87a4eccf9
+
+免费数据库： https://github.com/naoyaverek/vomtfy/commit/8b370e2e818248e9fed32c1dfff052afd4a8f1a5
+
+公共链接到互联网上传输的个线性电视频道和个线性无线电频道： https://github.com/cnarver79/nsuvbh/commit/08b7de438b83f2de6ac08b40c3c1269f5f626614
+
+超过个国家地区的个高清频道和： https://github.com/naoyaverek/vomtfy/commit/20803bfe445105f54c58705c317062fff4daa68f
+
+超过个直播电视频道影视节目： https://github.com/cnarver79/nsuvbh/commit/2202bfc5fcfc74e6705068a091bdaf0c27e0e25e
+
+提供商列表： https://github.com/naoyaverek/vomtfy/commit/5b3835923011c9267b21186bc921b22b058d292b
+
+提供者： https://github.com/cnarver79/nsuvbh/commit/848a9147c51cfb2c891e03d603378721ce1a3d77
+
+客户端服务器媒体播放器： https://github.com/naoyaverek/vomtfy/commit/2bb6d29ece2e0f7ba73b347dee6f2de07eb7cb02
+
+支持播放列表文件： https://github.com/cnarver79/nsuvbh/commit/216caad3ed2eb5bd9e44e1af1dddb6571957ebf3
+
+启用投屏的应用程序，可让您将收藏的视频从移动设备流式传输到电视： https://github.com/naoyaverek/vomtfy/commit/21b8fe39fc8c6863c682fcf95bd5f72e8545eeee
+
+完整的用户定义的高级 IPTV 解决方案，用于实时和非实时电视流： https://github.com/cnarver79/nsuvbh/commit/dc89af4962d8d3586ab2e1ccf23559370f318d19
+
+点 即可： https://github.com/naoyaverek/vomtfy/commit/d9f98891672c3e36cbb1ed9499d66db93b74990e
+
+第三行不用管： https://github.com/cnarver79/nsuvbh/commit/7f1be90057560d42547402276c8f18f100313de0
+
+第二行输入上面给你的地址： https://github.com/naoyaverek/vomtfy/commit/3e09fe58e679190f0e8a5ef194dfbaddeeb83a8c
+
+第一行随意输入一个名字： https://github.com/cnarver79/nsuvbh/commit/e9ab17c49211d6b813587bef964272f15d681985
+
+选择 远程播放列表文件： https://github.com/naoyaverek/vomtfy/commit/83022ac9ead7ec8e222720212067ee58bf3901ee
+
+打开 点击 号： https://github.com/cnarver79/nsuvbh/commit/15e752997dcbfc7c5cfc9c8ddc67c35507b32eec
+
+食用指南： https://github.com/naoyaverek/vomtfy/commit/8d18f743555f47a25421720dc55d4224392730c5
+
+适用于 macOS 的现代媒体播放器： https://github.com/cnarver79/nsuvbh/commit/5936be8d0bca6785b57b4fb9340741203ce927b1
+
+直播电视和广播客户端插件： https://github.com/naoyaverek/vomtfy/commit/6c65e349892678978ce480472ab19c54919b3b9a
+
+具有库支持的免费跨平台媒体播放器： https://github.com/cnarver79/nsuvbh/commit/da84c1efe24004b67dce50d0e23582c63c058196
+
+免费开放源代码的便携式跨平台媒体播放器： https://github.com/naoyaverek/vomtfy/commit/528d80dd463a49886347449be0633b95c1cc95f7
+
+支持 IPTV 流的应用程序： https://github.com/cnarver79/nsuvbh/commit/190cf379fb2134b859190d0cec6711304b9fbcdc
+
+工具： https://github.com/naoyaverek/vomtfy/commit/e11de91ceda85bc4b4d04e0e7e84ceeb2b9fe521
+
+轮播华数求索爱奇艺 2026-06-24 更新： https://github.com/cnarver79/nsuvbh/commit/5cc34d3ab48bdf63b4c068cc9dde448b321210ab
+
+台湾、香港、澳门、韩国、日本、美国、加拿大、英国、意大利、德国、法国、西班牙、南美等国： https://github.com/naoyaverek/vomtfy/commit/606d7c6f0673520396874002e735e0975e7d3961
+
+台湾香港海外直播源 2026-06-24 更新： https://github.com/cnarver79/nsuvbh/commit/6bf482f1676b69e11145fee8b6a903d7e21517cc
+
+各大卫视、上千个地方台： https://github.com/naoyaverek/vomtfy/commit/afa7a0304688cc256dc68c746fe6bc3e53ddb1df
+
+国内电视台直播源 2026-06-24 更新： https://github.com/cnarver79/nsuvbh/commit/c3bb9e37b6b3ffcfdcc721a6aef02ee7043433c9
+
+卫视腾讯云： https://github.com/naoyaverek/vomtfy/commit/f1ae658dba282ec22ba8fcb4ddaef6d611a63e60
+
+卫视平顶山学院教育网： https://github.com/cnarver79/nsuvbh/commit/08f0f0458fc83a8c9a21fafaaa69c619d807b269
+
+卫视天途云： https://github.com/naoyaverek/vomtfy/commit/69360d00997f7c2f62df2a4733020ff6ec0e828f
+
+卫视地方台安徽农大： https://github.com/cnarver79/nsuvbh/commit/d28b040429f6448150fc0badd680710e4b7d351c
+
+卫视北京凤凰探索星空卫视北京邮电大学校园网： https://github.com/naoyaverek/vomtfy/commit/40eefc79256c12c88c41067420b2045cd2f1ef62
+
+央视卫视广西移动直播源： https://github.com/cnarver79/nsuvbh/commit/dd2c2bd5379e98e12b8d25107ae160ad7a240732
+
+付费频道直播源： https://github.com/naoyaverek/vomtfy/commit/82481b2ff1d960d774e36b17b4922c27cdc51910
+
+国家直播源多个全部有效： https://github.com/cnarver79/nsuvbh/commit/67d7362342a76e5a20a4043b8e1b138c78c57912
+
+直播源全部有效： https://github.com/naoyaverek/vomtfy/commit/ca0d5470bb96b73bef8516d1e1417557d413b4d5
+
+全部有效： https://github.com/cnarver79/nsuvbh/commit/8f12270e96e9b9836a21fd912f2d0eda7b379921
+
+直播源全部有效老电脑别用： https://github.com/naoyaverek/vomtfy/commit/e4d8af0700afbe768be72aabca884360bc2ea9dc
+
+影视剧场全部流畅： https://github.com/cnarver79/nsuvbh/commit/7a3ecb6851f73eca2933946f0807af99e7edeb5f
+
+全部可用： https://github.com/naoyaverek/vomtfy/commit/5c97384e52f230b1164ffebc0699056434e6d1bf
+
+我的播放源： https://github.com/cnarver79/nsuvbh/commit/eb8295fa5742e03bd4a76bbb163fb1354aed0047
+
+其他直播源 不确定有效性： https://github.com/naoyaverek/vomtfy/commit/6229cd55b906907380ab096bf8f0c3fe2734274a
+
+新疆电信组播 IPTV 直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/34fba8664cc18b96e468ef98e6303736556c9273
+
+新疆 IPTV 直播源： https://github.com/naoyaverek/vomtfy/commit/da77873f44d6a06e973d1798440d4fdf85335662
+
+内蒙古联通 udp 组播下载地址： https://github.com/cnarver79/nsuvbh/commit/d7cb6064beb13d59b37073f776eb8bc3d920adb7
+
+内蒙古联通 IPTV 直播源下载地址： https://github.com/naoyaverek/vomtfy/commit/d75f48c718b0cbf73896f0960e11bd6ff592466f
+
+内蒙古电信组播 IPTV 直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/ad5b538343fb7f5a467aa48db5001bb192210516
+
+内蒙古电信 IPTV 直播源下载地址： https://github.com/naoyaverek/vomtfy/commit/3ab3333c0ec3de0008685dc0572460ece65bee4a
+
+内蒙古 IPTV 直播源： https://github.com/cnarver79/nsuvbh/commit/7f773f357fe0d23625c02528c468a153b7da2b40
+
+黑龙江联通组播 IPTV 直播源下载地址： https://github.com/naoyaverek/vomtfy/commit/3ab8cc1592a59ab711a4eb81057fec7f0531a0cd
+
+黑龙江移动 3IPTV 直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/3519eea38f33fd019c1b6943063857a578f756c2
+
+黑龙江移动 2IPTV 直播源下载地址： https://github.com/naoyaverek/vomtfy/commit/943028e8fd45b7c207158a8b0705157adf7b8934
+
+黑龙江移动 IPTV 直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/2cec8ab201c417575fef6db9b1f3b88cbe8873c3
+
+黑龙江 IPTV 直播源： https://github.com/naoyaverek/vomtfy/commit/278411c5019eafe13c59e1ba356296641a16c0eb
+
+吉林电信组播 IPTV 直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/d023b0010dcd6471a3f66bf9dad2835e9633a4b3
+
+吉林 IPTV 直播源： https://github.com/naoyaverek/vomtfy/commit/5279fe2f17d425ad2007315e393b4c4a3793d14c
+
+辽宁移动直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/64f3db4432043b9da2db60bd59e0504f974baade
+
+辽宁电信 IPTV 直播源下载地址： https://github.com/naoyaverek/vomtfy/commit/adb1210bd23326181355814bf7ca2f7952376cbc
+
+辽宁大连联通 IPTV 组播直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/12dff607078aa8ca54e1f34fc9196270d35fa2c3
+
+辽宁联通组播 IPTV 直播源下载地址： https://github.com/naoyaverek/vomtfy/commit/e36ad93f3af405fca77e3b39da770153eebb5ed4
+
+辽宁联通 IPTV 直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/1acebf94aa55f9d910ac48a0a1a64da3cf37811d
+
+辽宁 IPTV 直播源： https://github.com/naoyaverek/vomtfy/commit/7b91d1aa77898ca6f6ee297950773ad3dedd88bd
+
+浙江电信组播 IPTV 组播直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/67df6b020a598fbb7e797a2dff35c14fa2551b03
+
+浙江电信 IPTV 组播直播源下载地址： https://github.com/naoyaverek/vomtfy/commit/e5bc476c670216c97ac1404f89160f2513a42c39
+
+浙江联通 IPTV 直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/1aae110671cf7da46021b77a980fdd297439abb4
+
+浙江移动 IPTV 直播源下载地址： https://github.com/naoyaverek/vomtfy/commit/dffd9962680e0fb16eedc152ca35168fa89382a4
+
+浙江 IPTV 直播源： https://github.com/cnarver79/nsuvbh/commit/3931e292b036145fa35858678d10ff8762ad4b4d
+
+江西联通 IPTV 直播源下载地址： https://github.com/naoyaverek/vomtfy/commit/6c28273b908ac3170696efc610106eb358f5413e
+
+江西电信组播 IPTV 直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/cec5f837a4cb9dcadd026831d1d4e8b000297fa2
+
+江西电信 IPTV 直播源下载地址： https://github.com/naoyaverek/vomtfy/commit/624018c994e75ba371395487c2a49c10ee889f23
+
+江西移动 IPTV 直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/89d0ebae9fcf7f58e5dd73bad3c0c2ed52b71ee6
+
+江西 IPTV 直播源： https://github.com/naoyaverek/vomtfy/commit/cd24a4345edc63e53f364ebbd328f1ccb0a3ec5f
+
+江苏移动 IPTV 直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/fe26e724ad678b57cc391923690fdf302f23ce3a
+
+江苏电信组播 IPTV 直播源下载地址： https://github.com/naoyaverek/vomtfy/commit/5f864a90a6858550368cf19e91cc15e670c14e3b
+
+江苏泰州电信 IPTV 直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/0b065289b5e84735c4d7c3b9a2856b54f393d1eb
+
+江苏南京电信 2IPTV 直播源下载地址： https://github.com/naoyaverek/vomtfy/commit/5b397699dd4442d0e5a0a1a9c555a1f2c3af6285
+
+江苏南京电信 IPTV 直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/66ca4eef6ec663c902dcdf615e4b63c29d702bee
+
+江苏电信 IPTV 直播源下载地址： https://github.com/naoyaverek/vomtfy/commit/9027a3722bbab7a3a4f8522c922791122901e946
+
+江苏 IPTV 直播源： https://github.com/cnarver79/nsuvbh/commit/7861cf3db82aec49af8fcff99808a70dee30175a
+
+安徽广电 IPTV 直播源下载地址： https://github.com/naoyaverek/vomtfy/commit/0d77c903d1d3cc0c7c2993db83b83986438407b5
+
+海南电信组播 IPTV 直播源下载地址： https://github.com/cnarver79/nsuvbh/commit/26dcad8cb2fa0cf0d8552f3750e47d6c66b97ba8
+
+海南联通组播 IPTV 直播源下载地址： https://github.com/naoyaverek/vomtfy/commit/d069247add3842d082170f74c7c4170babc924df
+
+提供所有优质的英国，爱尔兰，德国，土耳其，阿拉伯语，美国和加拿大频道
+超过个俄罗斯频道和天的节目存档
+起初这里仅收录美加墨世界杯直播地址，配合赛程比分对阵供调用
+后来疫情来了，这里又增加了世界各国公共频道，及国内部分区域 IPTV，希望带给隔离中的些许心理依托
+然后转眼三年了，还这样子，且没有转好的迹象 相信这段浓墨重彩的一笔世人铭记
+眼下 美加墨世界杯
+再次祝愿所有人百毒不侵 希望动态清零早日过去，请大家务必坚信明天是崭新的
+这个项目的存在要感谢所有贡献者
+请给我们一个 点赞支持我们 谢谢
+并感谢所有支持者2026年06月24日07时53分00秒
+来源：https://github.com/cnarver79/nsuvbh/commit/687fa1f75fe706cf4ddeb8299746108789774425
+
+来源：https://github.com/naoyaverek/vomtfy/commit/55908dfb3478f7159b5680b6ec3d10d65aee10f4
+
+来源：https://github.com/cnarver79/nsuvbh/commit/0896e6b88e03d5604d9da229236c7670a55897dc
+
+来源：wefhsdhcvWESDCSDwefsdf.cn
+2026年06月24日，07时53分00秒
